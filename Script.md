@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns. Braus hit him over the head with a blunt instrument.
 
-Sunny met the Unicorn King who granted him magic powers. One of the magical powers that Sunny gained, was to self heal. He healed the wound on his head that he  got from Braus, and went about his merry little way.
+Sunny met the Unicorn King who granted him magic powers. One of the magical powers that Sunny gained, was to self heal. He healed the wound on his head that he  got from Braus, and went about his merry little way. Woah.
 
 
 The end.
