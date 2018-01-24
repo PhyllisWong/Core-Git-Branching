@@ -18,9 +18,9 @@ Sunny had heard the sound before, but today there was a new sound, sort of a cro
 He stopped to listen and noticed a heavy wooden door in the zoo wall was ajar.
 
 Normally Sunny would leave well enough alone, but he was worried that an animal might escape.
-He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a zoo keeper but got no response.
+He stuck his head in the door, the color of the foliage was intense greens, browns and chartreuse, he called out for a Braus the Zookeeper, but got no response.
 The smell of the of the zoo was intense and alive.
-He took a tentative step through the door and followed the stone path overgrown with giant ferns.
+He took a tentative step through the door and followed the stone path overgrown with giant ferns. Braus hit him over the head with a blunt instrument.
 
 Sunny met the Unicorn King who granted him magic powers.
 The end.
