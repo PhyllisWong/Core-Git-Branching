@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns. Braus hit him over the head with a blunt instrument.
 
-Braus is viewed as kind of a loner. Most give him a wide berth, as he frightens most.
+Braus is viewed as kind of a loner. Most give him a wide berth, as he frightens most. Sunny trusted Braus, and this got Sunny in trouble.
 
 Sunny met the Unicorn King who granted him magic powers. One of the powers he gained was self healing. Sunny healed himself. And went about his merry little way.
 The end.
