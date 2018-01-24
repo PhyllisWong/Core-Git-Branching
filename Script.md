@@ -24,7 +24,7 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 Braus is viewed as kind of a loner. Most give him a wide berth, as he frightens most.
 
-Sunny met the Unicorn King who granted him magic powers.
+Sunny met the Unicorn King who granted him magic powers. One of the powers he gained was self healing. Sunny healed himself. And went about his merry little way.
 The end.
 
 ## Cast
